@@ -1,0 +1,43 @@
+PK     ! 2‘oWf  ¥   [Content_Types].xml ¢(                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  ´”ËjÃ0E÷…þƒÑ¶ØJº(¥ÄÉ¢ehúŠ4NDõB£¼þ¾ã81¥$14ÉÆ ÏÜ{Ï1ƒÑÚšl	µw%ë=–“^i7+Ù×ä-d&á”0ÞAÉ6€l4¼½L60#µÃ’ÍS
+Oœ£œƒXø Ž*•V$:ÆB~‹ðû^ïKï¸”§Úƒ/P‰…IÙëš~7$²ì¹i¬³J&B0ZŠDu¾têOJ¾K(H¹íÁ¹xGŒL¨+Çvººš¨dcÓ»°ÔÅW>*®¼\XR§mpúªÒZ}í¢—€HwnMÑV¬ÐnÏ”Ã-ì")/ÒZwB`ÚÀË4¾Ýñ	®°sîDXÁôój¿Ì;A*Êˆ©Ëc´Ö‰Ö 4ßþÙ[›S‘Ô9Ž> ­•ø±÷{£Vç4p€˜ôéW×&’õÙóA½’¨Ù|»d‡?   ÿÿ PK     ! ‘·ï   N   _rels/.rels ¢(                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  ¬’ÁjÃ0@ïƒýƒÑ½QÚÁ£N/cÐÛÙ[ILÛØj×þý<ØØ]éaGËÒÓ“ÐzsœFuà”]ð–UŠ½	Öù^Ã[û¼x •…¼¥1xÖpâ›æöfýÊ#I)Êƒ‹YŠÏ‘øˆ˜ÍÀå*Döå§i")ÏÔc$³£žqU×÷˜~3 ™1ÕÖjH[{ª=E¾†ºÎ~
+f?±—3-ÂÞ²]ÄTê“¸2j)õ,l0/%œ‘b¬
+ð¼Ñêz£¿§Å‰…,	¡	‰/û|f\ZþçŠæ?6ï!Y´_áoœ]Aó  ÿÿ PK     ! ³¾‹  ¶   word/_rels/document.xml.rels ¢(                                                                                                                                                                                                                                                                  ¬“ÍjÃ0„ï…¾ƒØ{-;mC	‘s)\[÷d{ýCõc¤MZ¿}EJ‡ÓƒŽ3bg¾…Õzó­; ó½5²$†¦²uoZÅöá˜'ij©¬A#zØä÷wë7T’ÂïúÁ³b¼€ŽhXqî«µô‰Ð„—Æ:-)H×òAVŸ²E¾HÓ%wÓÈ¯2Ù®àvõ#°bð?Ù¶iú
+_mµ×hèF÷H6ó!SºIÀÉIBðÛ‹¨4*œõ\}³Þìu‰.l|!8[sË˜fñp”¿f6Çð“¡±†
+Yª	ÇÙšƒxŠ	ñ…åûŸ“œ˜'~õÛò   ÿÿ PK     ! œx»ÈÂ  T>     word/document.xmlì[YoÜ6~/Ðÿ@è%	ïa;©³È:HãFÐÂµSô1I\‰Ç®Ý_ÓßÒ_Öjµ»ŽÇŽc»°õ²+^spæ’Céí»S%Ù”['Œ'ÃÞ a\g&º'~Ú[ÛJ˜ó sFóqrÆ]ònûçŸÞÎF¹É‚âÚ3$¡ÝhVgã¤ô¾õû.+¹×S"³Æ™‰ïeFõÍd"2ÞŸ›÷×ÃA|ª­É¸sÈïè)¸dNN]¤fj®±qb¬E[ôØ*ÔkH½/R!…?CÚƒ×-3N‚Õ£9‰µ…@4dÔ4ÿkGØëðm†ìÌg rì[.Q£])ê¥ßKË–Èô*%¦J¶ýfõpóv6Ø±0Ã¿%ÁëˆŸ7ƒ”l$¿šâpp‹‰Åˆëˆpžg+‰¡—Œ¿kjV&wøêfÖ¿$P·3Î¾5¡^R·£v «-BöhÍ¼ªš»0Ç%Ôˆ@•
+m,¤%B“1œuFnlcÄIM~Fÿ5›0båGãd0Ø\µõæ×¤­:´—Tîð	é/¶®TEÊ‡–þ\J…RŽn†²Óßoæ]°…êaâ¹]ôŠ¥‹¤ yÞxûPá(š€“>±=É°a
+rœ¤Ñël#‘Ý3Ú;¢í2–ÿ$wìw>cGF&Šœï\ÚX¾×îòa™»X9»¿[iÖ7Ûš$Â¹:	qž–ÌE¾v°Cmý¹ðýÅ´ÚKô8´œâB]Z[î¸òdûˆ{+ø”3À5J–B4ËÁ
+†bˆ:HpËØñÉE4TØ'h*¦¸%x&Ú^5’b'÷Ba$K¹54mS^yc‘ð¡!‡­)„¡ŒM„ä-#t,±2’—l÷øè€å\XÁO=ÇÙ”¬çÊºÇHQß¨Û˜ôž8GØ;OHÝìwaìÃØöÞJ€Hƒå¹PU òÅÈ…gÔE‰ÿ“Ÿ>—¼|eöpE«Ï¯LîLa—	j0NþBŸ§ƒº‹¼K@}÷»[í€'ª.÷‹v?T<c¾ï…U¯N]pº7'\ï±<°.:=Ýè´=CR.û´KJÁñC]J£c×c´Ç:í¢ØUQì‘»ÀÓ2~ŒÚ”i:ç§ñlûï?]È~L!û‘ûïÎJxžs^æ–× j!)…S‰‡$Ü£@LøRWÅæ©âxbzÉ
+@,¼dU°S`H$Ð QÝc«lQð,Q-E–Ç¢=8AÜ&Â»Ù	’<O§F6<ºxÉ,—$÷”ÌÖLâCµ<ÆõØG.¹‚2
+‹}„­†÷"‡J¡r¨Ž>#¤Ž¢dve”É)SU£²i?áÚÐ\,RäNLPƒÂB@vGÅ°÷Ø`!:j‰àÀ'A‘K[ž¡ã7—=Ž§«–W7è±Íý7¥À(íªƒj„œÊVõA£9¶ämÝp®ñb@·²u@ùQÛS×›Š3iªãÏ|i4C‘<´ö•A†º¿ì ÒAäá!B›£¸ák ÑA¡ƒÂS‡‚Pµ±~å…˜(ž:(`AxèqÈ¹eÏŸáù¢Ÿz÷YóÏ)ô2Ø³Z:´<´,€‘ŽÉñîù‹˜jŠ»)+´g’kö<}ñm@llww^}·ï/=øŽ½îÆS~‰[ÜÇ¯´ÜáÐÈltóXõxLswƒá(X“Á¦ÔmLñ.Þž¦\o%bb¸¿ò"¢ã’g¾?HŸ’Æ_K¤õØNób3vˆ4hpäA/‘EÒ'¡ –ró”ÿ‚a|	;ŽÀÕ€2ržiPA¯.ÁEh_á†ZŠ˜—p¼æÖ³?
+á¢œ‡ñ0Öë¼ójï|PG<Æ†[Ùèý«Ã7îÎFœ®èÆQ‰àË=@—hÊ+Bl¤ÀP°pÌ ÷±Œn‘œp³&ñŽÀ¤QÚÇ+²/ÞlŽZ8úÎ¢‹«}M<”!5]Óå’ödÄæ¬â9¯››(Øp Ÿs•Î‰îÏ‰.ßEì_†ôË}†f*úðôØt<ät
+Á\Àç}ó+dUÃ´í»«épÒôlxÓþß<2uNq·‘åPB!è\ñ¯¬w‡öº6Œf)Ž‰ãOÃ7ô™2JÏ¯·6â;EÔá7 ŠÞÔX¿¹ÍeEQúeíãZ–%Ÿ¬´–ñä>N~lQqbL<ÊÎ‹Eðó«åÈ.3’ætîûÔ'Vç&Û·‚\–<åPø¬l|§™¢FïøØ|“Ù_~¾ý   ÿÿ PK     ! ªR%ß#  ‹     word/theme/theme1.xmlìYM‹7¾úÄÜÍøc‰7Øc;i³›„ì&%GyFžQ¬IÞ]%9
+¥ié¡Þz(m	ô’þšmSÚòªÑxlÉ–YÚl`)YÃZÏûêÑûJ4žËWNŽã˜¦§z©â ”4ÄiÔqîK-pÓš¢Ž3GÜ¹²ûá—áŽˆQ‚€´Oùì8±Ór™²òKtŠRÙ7¦,BVYT<–~R®U*rqê€&ÒíÍñf.ÝÂù€È©àYC@ØAæ
+NªÙŸsŸ0pIÇ‘ã„ôøÈ…ìè8õç”w/——FDl±Õì†êoa·0'5eÇ¢ÑÒÐu=·Ñ]úW "6qƒæ 1h,ý) 9Óœ‹Žõzí^ß[`5P^´øî7ûõª×ü×7ð]/ûxÊ‹î~8ôW1Ô@yÑ³Ä¤Yó]¯@y±±oVº}·ià(&8l +^£î³]BÆ”\³ÂÛž;lÖðª¬­®Ü>ÛÖZïS6” •\(p
+Ä|ŠÆ08<bìá(–o
+SÊes¥VVêòöqUIEî ¨YçMßhÊø 0<çcéÕÑ o^þøæåspúèÅé£_N?>}ô³ÅêL#Ýêõ÷_üýôSð×óï^?ùÊŽç:þ÷Ÿ>ûí×/í@¡_}ýìÏ^}óùŸ?<±À»Žtø!N7Ð1¸M91Ë hÄþÅa±nÑM#S˜ÙXÐèsH ×Cfï2)6àÕÙ}ƒðAÌf[€×ãÄ îSJz”Yçt=KÂ,ìƒ³™Ž»á‘ml-¿ƒÙT®wlséÇÈ y‹È”Ã¥H€¬N²˜ÝÃØˆë>åt,À=z[CrˆGÆjZ]Ã‰ÌËÜFPæÛˆÍþ]Ð£Äæ¾ŽL¤ÜØ\"b„ñ*œ	˜XÃ„èÈ=(bÉƒ9Œ€s!3!BÁ DœÛln²¹A÷º”{Ú÷É<1‘Là‰¹)Õ‘}:ñc˜L­œqëØøD.QnQa%AÍ’Õe`º5Ýw12Ò}öÞ¾#•Õ¾@²ž³m	DÍý8'cˆ”óòšž'8=SÜ×dÝ{·².…ôÕ·Oíº{!½Ë°uG­Ëø6Üºxû”…øâkwÎÒ[Hnô½t¿—îÿ½toÛÏç/Ø+V—øâª®Ü$[ïícLÈ˜´Ç•ºs9½p(UE-¦±,.†3pƒªŸ`Äp*‡©ª"¾pq0¥\žªÙê;ë ³dŸ†ykµZ<™J(Víò|)Úåi$òÖFsõ¶t¯j‘zT.d¶ÿ†„6˜I¢n!Ñ,Ï ¡fv.,Ú­ÌýVêk‘¹ÿ Ì~ÔðÜœ‘\o 0ËSn_d÷Ü3½-˜æ´k–éµ3®ç“iƒ„¶ÜLÚ2ŒaˆÖ›Ï9×íUJzY(6i4[ï"×™ˆ¬iIÍ8–{®îI7œvœ±¼Êb2•þx¦›DiÇ	Ä"ÐÿEY¦Œ‹>äqS]ùü,'r­ëi éŠ[µÖÌæxAÉµ+/rêKO2Q ¶´¬ª²/wbí}KpV¡3Iú ÁˆÌØm(å5«Y CÌÅ2š!fÚâ^EqM®[ÑøÅlµE!™Æpq¢èbžÃUyIG›‡bº>+³¾˜Ì(Ê’ôÖ§îÙFY‡&š[ìÔ´ëÇ»;ä5V+Ý7XåÒ½®uíBë¶o hÔVƒÔ2Æj«V“Ú9^´á–KsÛqÞ§ÁúªÍˆâ^©j¯&èè¾\ù}y]ÁUt"ŸüâGå\	Tk¡.'Ìî8*^×õkž_ª´¼AÉ­»•RËëÖK]Ï«W^µÒïÕÊ ˆ8©zùØCù<Cæ‹7/ª}ãíKR\³/4)Su.+cõö¥ZÛþö`™Ú°]o÷¥v½;,¹ý^«Ôö½R¿á7ûÃ¾ïµÚÃ‡8R`·[÷ÝÆ UjT}¿ä6*ýV»Ôtkµ®Ûì¶n÷á"ÖræÅw^Åk÷   ÿÿ PK     ! TÉ.¬±  Ç	     word/settings.xml´VÝ’Ú6¾ïLÞñu½`Ö¬6ÃBh6³4˜>€lÉ Yý$Ã’Nß½G²´†M›¡Íä
+ù|ç_ß9âí»'Î{¢•b–dW£d@D-1ÛYòÇf•¾IÆ"“‚Ì’#1É»ÛW?½=†Xjf .„)x=KvÖªb84õŽpd®¤"ÀFjŽ,|êí#ýØª´–\!K+Ê¨=Ç£Ñ4	nä,iµ(‚‹”ÓZK#ëL
+Ù4´&á'ZèKâv&KY·œë#5aƒfG•‰Þøÿõà.:Ù«ˆ=gQï.(÷ 5~¶¸$=g ´¬‰1pAœÅ©èç_9zŽ}±C‰Þ˜g#:Í|òßŒ_80ì’J:èVéŽ'¡^÷[!5ª°Ê@FÉ-Ðò‹”|p(Ñ5Üpz4J†€ŽÈ¦´È€"Œy’×Œ px(¶q g”xLÔ2»AUi¥¥=‚¼_ƒËz‡4ª-Ñ¥B5x[HaµdQËß¤] Õ5ÜD°ðÄïOe7D`!‡JÎc-1q™µš^Þlgà£C?NB¾$aè5Ådã:XÚ##+H¾¤_È\à­±<úñøŽ¾• .ò'¸óÍQ‘A¶…6ý `þ&VŒª5ÕZê{?,m¢! ®­>TËƒïó‚0ìÚïŒ;<¥lnlâá³”6ªŽFùxòææ®ËÔ¡=rgï—çÈ¿ÛäóÉ"»	ñCT^¸­÷»Ž'G¡ï,ˆWš¢ÁÚíÅ¡Ó¨ôã¯:9EÊ¶Š`šv€áˆ±ÌXüàñS£–¤ñg¶FzÛûú¥0ÏŸ}¹ý@ô¯Z¶ªC©ŽQ%Ëó`I…} <ÊM[•ÑJÀj:Z?íµïSßžCaáŠýˆ= O¯Kqz¿Tbºt4 k¤TÇ¦j›ÍF·;›9XøÂð|új;ØØcãó¨v•v8ô²q”è]GÙu/Ë£,ïe“(›ô²i”Mls¬a©>±ãÑÉÉ˜<ü¡Ç¿uM0;¤È²Û¹@/Ù	Â6ƒ}Až`£L-ü+QsôäüxêÌƒ6CGÙÚ3]‡9euî#‹âH{Š¿ÈÅ½5:–G^õ+þç.qF¬¯•:b¿x,›øgÂn€Åp±ŸIs‡ÁÃ²¾Çîñêlþœ.¯a>ïVé"[LÓ|™/ÒyžÏÓE¾|=Ÿg7ÙjqýW˜Âøìöo   ÿÿ PK     ! uÐø|  ‘     word/webSettings.xml”“]OÂ0†ïMüKïa"š…ABÆÄ£øº®ÛÛž¦-Løõ6¾/àª§oû>='ï6š|+¬¸utFâ~D®BWù\Ì{$pžê‚JÐ<#kîÈd|{3jÒ†çÜ{¼é¤h—*–‘Ú{“†¡c5WÔõÁp‡%XE=nm*j¿–¦Ç@êE.¤ðë0‰¢!Ùaì%(KÁøØRqí[h¹D"hWãö´æZ¶0wçQ²ã)*ôÎ@J0JßÇavµ(´ÇQ[)yÜ_H ÅÒçJƒ¥¹Ä°“ adŒbåvkÐ¤¢ÈÈ0ÄÉÝà!jÏs(Ö³ölE%æKÂ­Š	¼ðÒïÕè ¾‹ªþG^€9§à=¨?:ö1-ì¶òGÆ/‡àÆm¶÷¶…¡Œïj0pºôÐ!äIg×9ó_]çµ§“_cCwå~msã…>;µÐ8nÛ×¨”Ð¼½>uþ“iü  ÿÿ PK     ! Œï”ä²  r     word/styles.xml¼ÙrÛ:†ï§jÞ¥«3Ž-¯Iê8§¼Äc×Ä‰OäL®!²0&	—Øž§,¤Dº	Šöñ•­¥?€øûÑ\ÄßÿxNâàÏr!ÓÓÉôÝÞ$ài(#‘>œN~Ü_í¼ŸyÁÒˆÅ2å§“žOþøô÷¿ýþô1/^bž
+æ“ðt²,ŠÕÇÝÝ<\ò„åïäŠ§êÃ…ÌV¨—ÙÃnÂ²ÇrµÊdÅ
+1±(^v÷÷öŽ'&B‘‹…ù¥Ë„§…‰ßÍx¬ˆ2Í—b•×´§!´'™E«L†<ÏÕF'±å%L¤kÌô€f2—‹âÚ˜ªG¥Â§{æ¿$Þ Žp€ý5 	?Þ<¤2cóX¾êI `“Ojø#^ò+ã"×/³»¬zY½2®dZäÁÓG–‡BÜ«–$Šw}–æb¢>á,/ÎrÁ:?\ê:?	ó¢ñö¹ˆÄdW·˜ÿO}ø‹Å§“ýýúÝƒÖ{1Kê÷D´ssÙìÉé„§;?fú­¹âžNX¶3;Ó»Õ†Ù¿Í]½~e^±P˜vØ¢à*³¦Ç{ÈûGêßK=¶¬,dÕˆØ¿kì.q•p*ýfÖêS¾ø"ÃGÍ
+õÁéÄ´¥Þüqs—	™©L?|0mª7g<×"ŠxÚøbºÿ¹äéœG›÷ÿ¼2ÙZ½Ê2UÿœLMÄyôù9ä+ûêÓ”iM¾ê€X»›ÆMøkØ´R¢+~É™ž ‚ék„é>
+±¯#òÆÖv3ËWÛn¾…jèà­:|«†ŽÞª¡ã·jèä­zÿVÌ_ÙH#þl›Ôm‡Ñ‡ÙÐ‡—Ð‡UÐ‡ÐG¢£9Ž<FsiŠà2tea#ÙÙÞÏÝ¾ðãnß%øq·ïü¸Û'|?îöùÝ»}:÷ãnŸ½ý¸Û'k<×.µ‚e³´í²…”E*üy<¥Šeª"žÞéñŒd#	0vf«vÄ£i!3¯·gˆ1©ÿþ¼Ð…\ ÁB<”™*¦Çvœ§¿x¬ÊÚ€E‘â3^”™cD|r:ãžñ4ä”‰MÕ•`–Éœ 7WìŒÅÓˆxøj"É¤°NhU?/µIAR',Ìäø®IF6?|ùø±Òà¼ŒcNÄúJ“b†5¾60˜ñ¥ÁŒ¯f|aÐÐŒjˆ*ÑHU4¢«hDãfó“jÜ*Ñ¸U4¢q«hãÇí^±™â›«Žéðcw±ÔÇ±G÷c&R¦ ãw7Õ1ÓàŽeì!c«e Jwc›ÛŒmç\F/Á=Å>mM¢Z×›¹P[-Òrü€¶hTæZóˆìµælÍo±[µLÖ´kšzfVÎ‹NÓÒ ÓÎX\Úíx·±b|†mp%²œÌÝX‚þª—³ZNŠ™oÓËñÛ°ÆÛêõ¬DÚ½
+IÐËX†4ÓðõËŠgª,{Mº’q,ŸxDGœ™´¹Ö´ü¾‘då?'«%Ë…©•Zˆá»úúxpËV£7è.f"¥ÑíóNÂDÐ­ ®ïo¿÷r¥ËL=04ÀsY2!cVGûÉçÿ éà™*‚Ó¢­=#:<d`‚`'cI2""©e¦HÉ>ÔðþÅ_æ’eí.ãö¢“‚g,YÙE·Ô¼ø¤æ‚Õáý›eB¢2Õ=	¬qØ0/çÿááø©î«HŽ}+süÑ,uM4nü2¡…¿D0jªÝƒÎ_‚máÆolGµ±1Ësá<…êÍ£ÚÜšG½½ã‹¿Š'c™-Ê˜n k ÙÖ@²!”q™¤9åáõö¦Œá’3¼f""ÃÀ¨”00*ŒJ#`ü:ØøËt°ñ×êXÑ £Ê3ÒÝ?ÑYžŒ*ÏŒ*ÏŒ*ÏŒ*Ï.¾X¨E0Ý.¦¤Ê¹’nG“<YÉŒe/DÈÏ1`H-í.“}7‚LíEÜH}Œ:&\l[•È?ùœ¬kšEÙ/‚#¢,Ž¥$:¶¶Ùá˜ÈöµkÛÂÌ£»p³/eñÌ±MîXU/Ïìm¯»oº1è°çñ°,‚Ùr}´¿‰9ÞÛYì­°ívùq}?KWØ-D™Ô…7S6Ý
+>Ü¼YI´"FÂ6·GnVÉ­È“‘°Í÷#O[‘}~¸dÙcg"œôåÏºÆs$ßI_­ƒ;›íK¤udW
+žôeQË*ÁYê³PažqÇ3;ã"7c'7e°¯Üˆ>ƒ}ç¿„Þ³c&MÓÞúê	0ï›Eô ™óÏRÚãö­NÃoêºQ§4çA'ç`ø‰«Ö,ãÇÁÓ1xÞq#O@nÄ ™ÈŽš’Ü”Ás“1x’r#Ð³Ü#àf+›­`¼Ïl)>³ÕˆU€1x9àF 
+h£ŽX)¸(£‚p/£B
+Ú¨6*D 
+`8£ÂxœQa¼Q!ÅÇ¨‚6*D 
+h£BÚ¨6ªçÚÞîeTHA"ÐF…´QÍzq„Qa<Î¨0ÞÇ¨âcTHA"ÐF…´Q!mTˆ@"PFá^F…´Q!mTˆ@ÕÞjèoT3*Œ÷1*¤øRÐF…´Q!mTˆ@"ÐF…”QA¸—Q!mTˆ@"ÐF5'GÆãŒ
+ã}Œ
+)>F…´Q!mTˆ@"ÐF…´Q!eTîeTHA"ÐF…ˆ¾ü¬NQº.³Ÿâz:¯Ø~êªêÔ÷æ­ÜMÔÁpTÝ+7kø½çR>7˜zcDÌc!Í!jÇiõ&×\:ñùí¢ÿŸ&}ä.U÷B˜s¦ ~84S9ìKùf$(òû2½	V‡}³o3ìû&]ãËú¢µ;Á}ÓL#xêï›­ápˆûæèF á¾™¹¸o>nzr~}4pœŽ××—B_:6'nB_ZB­êéc¨hnÂPõÜ„¡2º	(=¼°nZa7ÊOjh3¬ÔþFu°RC‚—Ô ã/5DyKQ~RÃ‰+5$`¥öŸœÝ/©Æ_jˆò–¢ü¤†»2¬Ô€•°RÜ!;1þRC”·Ôå'5\Üa¥†¬Ô€•¼¤©!Ê[jˆò“TÉh©!+5$`¥†/©Æ_jˆò–¢ú¤6GQZR£n„ãa@Ü¹ˆ›œÕR#Ú³Zj<«%¨U­9®ZjŠæ&UÏM*£›€ÒÓ‰ÁëF¡v£ü¤ÆUK]RûÕMÀJ«–œRãª¥^©qÕR¯Ô¸jÉ-5®Zê’W-uIí?9»	^Rãª¥^©qÕR¯Ô¸jÉ-5®Zê’W-uI«–º¤¹Cvbü¥ÆUK½Rãª%·Ô¸j©Kj\µÔ%5®Zê’W-9¥ÆUK½Rãª¥^©qÕ’[j\µÔ%5®Zê’W-uI«–œRãª¥^©qÕR¯ÔŽji÷©õ &Í6$S_.^V\ÿwã†™ÈþiuÐ|ñ&Z?(IëžÕ#©ª·M‡«†¶E›
+—ª­°úõ$GSÕ¯ ®oã1¿úºaÇO¥šŽl† þv5¤›S¡ö{­Óž½ý.ô÷ôÙHÒ;FV5W?Ti¸­‡ª?óØ>´Kýs“F
+ðT=°Êö4zf¥>¿àq|Ëì·åÊýÕ˜/
+ûétÏÜ4ÿêó¹ýý7g|f&
+'`·Ýû²zp˜c¼í/ÂWg°)©ÝÐ1ÜærŠ±#íî[Ë.¯ò“Ï]úÛŸ»³ãÉTß´«‰Æ¤F–&joïpÿèý‡sžó6×¿±Æµ\FOûò¬,dõ•j¬ëÇÁÙo™WðKÕSâ×Œë~JœãQ{Ê;"áyð•?ßeÂÌý~›Üu|hµ×ùI˜Ã·íØmžµWåo=k¯>óoŸµ·iÜ>pÏnCý8½*)êÿòOÿ  ÿÿ PK     ! qžÂp  ç   docProps/core.xml ¢(                                                                                                                                                                                                                                                                  Œ’QOƒ0€ßMü¤ïPÊâTÂX¢fO.1qFã[mo[-M[†ü{llÄ=øv×ûîã¸6›ÿÈ"Øƒ±¢T3D¢ XÉ…ÚÌÐÛjÞ¡À:ª8-J3Ô€Eóüú*c:e¥Sj0N€¼IÙ”éÚ:§SŒ-Û‚¤6ò„òÅui$u>5¬)ÛÑà$Ž§X‚£œ:Š[a¨#:(9”º2E'àC”³˜DŸXFÚ‹]åŒ”Â5.¢Çâ@ÿX1€u]Gõ¤Cýü,Ÿ_»_…jwÅ åg©®€<Ã§ÐG¶úúæúã!ñ13@]irÙT¶Z×ÐÇÃvÝ;hêÒpë[G™Ç8Xf„vþ{ñèÀÓµnéou-€?4gßø[kq{Ñ¾ˆœtÄf‡õösüZÒ~‰ÇÊûäñiµ@y“iHH˜$+rŸÞÜ¦qüÙŽ6ê?	åa€ÿ“8õÒ‘ñ(è·3~šù/   ÿÿ PK     ! m™
+ü³  ö     word/numbering.xml´–kkÛ0†¿öŒa_â\fš–µ]GÇƒu?@±•DÔº ÉNûïw$[NÓ7ö—(Ò{Î«óHÉA—×Ï´ð*,álåG“Ð÷0ËxNØvåÿy¼¿XúžÒˆå¨à¯ü¬üë«.÷)+éKôÀƒ©t/²•¿ÓZ¤A ²¦HM(É$W|£'§ßlH†ƒ=—y‡Qh¿	É3¬øÜ"V!å7vô_7.0qÃ%E¦rP$ŸJqîi²&Ñ/àÎ_ù¥dicqÑdRÒº fpò”}ë”;ž•3mw$. ÎÔŽˆÆ{Ý@Ü9“ª¢¢…‹Û‹(9ïî$ÚÃp0<¥ü¼N¢E]y·cžp#Æ¢Í8¥„ã=]%vØø]Góêp£Y?ƒø­Øžw9ß$/ÅÁœçöÀžZ/ó×îáÕ\òk4u^1¿wHÀ?féÃ–q‰ÖTWæÁ©{ægí_AËAk¥%ÊôÏ’zG³‡|åCë‚àTbèWÒ,ÖÝéËFcy#1z2!Æ…)’Cz…
+X¹»-7±…–…&?p…‹Ç]Œ]-Ìj¥©(œ6›ß|¦PžUŠÊ·—­ÅGu4Î{Ú.æ8#5ÖùˆŸ[íS4i×¿gnµÀ]/‹_Ò'ÑŒ.ö€ãH‡{YÄ¡	„™0>µ
+“b[Ûô§smÝ»ù[¸È¤hèUÐð*læÀÆCÀFIÒEkåÞ¸ñ¸Ó!pã¨­ÿ¸Vî;7w¹ìÄ5roÜdÜÙ¸P~®•{ãÎÆÀ›L;;••{ãÎÇÀ];;[••{ã.ÆÀ]‚»èlUVî»÷ó¸ó¤³UYùÜàèÓ€xöÓ<zjÞ£—+ÆÙ1“Võ‹èê/   ÿÿ PK     !  (Žî  ø     word/fontTable.xml¼“]o›0†ï'õ? ß7’´)*©º¬‘&M»˜:íÚqXÅ6òqÂòïwÌW%UÃÍŒ„à=öƒýˆóøôW•Á^XF§$šPÍÍVê<%¿_×·€czËJ£EJÈÓòæËcdF;p½†Dñ”ÎUI/„b01•ÐXÌŒUÌá«ÍCÅìÛ®ºåFUÌÉ,¥;„1¥w¤ÃØk(&Ë$ßß)¡]³>´¢D¢ÑPÈ
+zZ}­6v[YÃ žY•-O1©L4;)É­“¹	¦ÛQƒÂåmžTyÌÇâ xò=×Æ²M‰òq'ÂÈ²³Ô‰f
++VÊ•M¡bÚ€ˆ°¶geJhL×tŽwÍèÔßIè'ò‚YÒN¤mœ1%ËCŸB-ÚB%/ú|Ï¬ô›jK s,ì`CSòBqÄë5i“(%3žWCûo5#ê’éPŸð†ÓÎxhVñ†3ÌÁo†­3¯R	~Š:øeÓ‰éš˜£of:Êˆm¸cÄ/ï¬0¹_Ì¦gF>7Òr®7òkßÎpÑÅ¼GÇeñ%lçÌ(ïÕªˆN“£Š>¹¨bqš\©¢k“à‡Ì÷a³øù_Íòì·ŒÿÆi³Äôþë8ÍëçÍÒ=Àò   ÿÿ PK     ! ÃOèÚ  Ú   docProps/app.xml ¢(                                                                                                                                                                                                                                                                  œSMoÔ0½#ñ"ß»NZ`åu…¶B= ]iÓö<8“]Ç¶lwÕå×3NØà'rzóf2óæÃâúy0ÕCÔÎ®Y³¨Y…V¹NÛýšÝ·Ÿ.Þ³*&°gqÍNÙµ|ýJlƒó’ÆXQ
+×ì’_qÕˆr[òô.È{îú^+¼qêi@›ø²®¯8>'´v~NÈ¦Œ«cúß¤SY_|hOžòIÑâà$”_óŸFð™­K`Z= \6ÄÏ–ØÂ£$nâÑ….Êe})øÅæ T¢éÉ¦¹ú xAˆÞ­ Ñ`å­‚‹®OÕÝ¨¶Ê	/Cu°Cõt:ÉZðÒŸµ%T`$-À>€?ž¬o¶ÄNÁõ.{0ÿMˆ[„¼×-è¬ï˜VGTÉ…*ê´Ù%«¾AÄ<±5;BÐ`›Â&cÄÆÇd«“¡Ü³=Â2¬Äúmâ^ŽÆ¨ðKuc…x×Soéb›Rì¨a’ZÈ)•kü‘uã–æËgDþï}ënòqüšáK²Xû£N‡•ïäÍ»ey …KìˆÅŽ6:/e&Ä-µL.@ÿÚ=vç˜¿ù¤¦§*›ËEMßxCgŽ.a~Cò'   ÿÿ PK-      ! 2‘oWf  ¥                   [Content_Types].xmlPK-      ! ‘·ï   N               Ÿ  _rels/.relsPK-      ! ³¾‹  ¶               ¿  word/_rels/document.xml.relsPK-      ! œx»ÈÂ  T>               	  word/document.xmlPK-      ! ªR%ß#  ‹               ÷  word/theme/theme1.xmlPK-      ! TÉ.¬±  Ç	               M  word/settings.xmlPK-      ! uÐø|  ‘               -  word/webSettings.xmlPK-      ! Œï”ä²  r               Û  word/styles.xmlPK-      ! qžÂp  ç               º'  docProps/core.xmlPK-      ! m™
+ü³  ö               a*  word/numbering.xmlPK-      !  (Žî  ø               D-  word/fontTable.xmlPK-      ! ÃOèÚ  Ú               b/  docProps/app.xmlPK        r2    
