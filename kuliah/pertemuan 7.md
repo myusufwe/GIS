@@ -1,8 +1,10 @@
 PEMBUKAAN
+<br>
 Latar Belakang Masalah :
 Pada zaman sekarang yang semakin canggil ini berbagai macam cara bisa dilakukan dalam pemanfaatan geografis pada sistem digital seperti menyediakan map atau peta yang dibuat secara sistem sesuai dengan keinginan si pembuat peta. Salah satunya yaitu google maps. Adapun pada pembahasan kali ini akan menjelaskan bagaimna cara menjalankan map proxy dan map server yang telah diinstal sebelumnya di materi sebelumnya.
 
 ISI
+<br>
 Adapun cara menjalankannya yaitu sebagai berikut:
 a.	Untuk meload data geospasial, kita perlu menyiapkannya dulu agar akan ditampilkan nantinya di Map Proxy. Kalian bisa mendownload data geospasial di situs ini, http://www.halaman.download/ kemudian pilih "Producer" dan klik "Indonesia Mapproxy".
 b.	Jika sudah download ekstrak file tersebut (Penting!! Ketahui dimana anda mengekstrak file tersebut, karena path-nya akan digunakan untuk mengedit file yang ada di direktori yang telah di ekstrak tersebut.
@@ -44,6 +46,7 @@ k.	Tunggu beberapa saat karna datanya sedang di load.
 l.	Map Peta akan muncul
 
 PENUTUP
+<br>
 Kesimpulan
 Kita dapat mengetahui bagaimana cara menjalankan map server dan map proxy di dalam sistem operasi ubuntu.
 
