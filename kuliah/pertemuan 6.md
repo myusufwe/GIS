@@ -1,8 +1,10 @@
 PEMBUKAAN
+<br>
 Latar Belakang
 Pada zaman sekarang yang semakin canggil ini berbagai macam cara bisa dilakukan dalam pemanfaatan geografis pada sistem digital seperti menyediakan map atau peta yang dibuat secara sistem sesuai dengan keinginan si pembuat peta. Salah satunya yaitu google maps. Adapun pada pembahasan kali ini akan menjelaskan bagaimna cara membuat maps secara custom.
 
 ISI
+<br>
 1. Pengertian Map Server
 Secara singkat map server adalah penyedia layanan (web service peta). Dalam arti Map Server adalah sebuah lingkungan pengembangan open source untuk membangun aplikasi internet spasial diaktifkan. Hal ini dapat dijalankan sebagai program CGI atau melalui Mapscript yang mendukung beberapa bahasa pemrograman (menggunakan SWIG). MapServer dikembangkan oleh University of Minnesota - jadi, sering dan lebih khusus disebut sebagai "UMN MapServer", untuk membedakannya dari komersial "peta server". MapServer awalnya dikembangkan dengan dukungan dari NASA, yang membutuhkan cara untuk membuat citra satelit yang tersedia untuk umum.
 
@@ -27,6 +29,7 @@ f. Kemudian install Map Proxy, dengan perintah : sudo pip install MapProxy
 g. Setelah diinstall maka unduh peta Indonesia dan konfigurasi map proxy serta map file dari map server di halaman download.
 
 PENUTUP
+<br>
 Kesimpulan
 Jadi, untuk membuat map secara custom, kita harus terlebih dahulu menginstall map server dan map proxy pada ubuntu (disarankan).
 
